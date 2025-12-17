@@ -1,4 +1,5 @@
-RICKS INTRODUCTION
+``RICKS INTRODUCTION``
+
 level 19 # he him # british # proud third street saint + no.1 gatboss shipper
 
 feel free to int with me! im always looking for a chat! - HOWEVER, i am 19 years old so please remain 16+. i can be found at docks on the safe server and i can be found in the area by the bakery + market on the 18+ server.
