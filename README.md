@@ -1,4 +1,4 @@
-## RICKS INTRODUCTION
+## RICKS INFORMATION 
 
 level 19 # he him # british # proud third street saint + no.1 gatboss shipper
 
